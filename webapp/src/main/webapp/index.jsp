@@ -1,3 +1,3 @@
-<h1> Psalms 56:3</h1>
-<h2> When I'm afraid, I put my trust in You </h2>
+<h1> Luke 22:42 </h1>
+<h2> Not my will, but Your will be done Father God. </h2>
 <h2> God is good all the time and all the time God is good!!! </h2>
